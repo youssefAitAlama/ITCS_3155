@@ -1,0 +1,1 @@
+there isnt many skripts we made yet sry
